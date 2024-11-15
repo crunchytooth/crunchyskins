@@ -19,3 +19,5 @@ click the name of the skin for download
 ![](https://osu.ppy.sh/ss/19300940/9fb4)
 # [rafis](https://download1528.mediafire.com/gagyy7p7zxegs_Sayk3agR_sWltC5-n63dJ1NODOGZRo8yZpATDHOcSO_kIUYXJ5AxdzUed3i64u6eHsqIPChZsjLwLdrsDEwm6MCA-cz-dqkLlz9Vuwo9E5Up9zN2BrCVJEvlm6SXmZ9h3ergwDeKqtyc4mLp7gRX-YwA/ombcbuiszdg8nrb/Prawilosc+vJP+without+followpoints.osk)
 ![](https://osu.ppy.sh/ss/19300947/d940)
+# [Arnold](https://download1349.mediafire.com/rw2j0rf7ppugWOpmE2uiUTBLCV3tJan4BXGxXW3XPXck_NK2rnlNmKTUqEtOv5_JL9v5fUUEX1ZgAMFYUDpz59qSLBZZSXJfj5_ZzOYkuAFn-Xn6FuuLpGc8ITgy_AhT7s8aCMKwAFAYJIF-eZ81nrM1b86Ahmg1_rCkT0CV/gokwrkfj4vdztza/Arnold24x24+skin.osk)
+![](https://i.postimg.cc/FKr2N0nM/mVGQQlm.jpg)
